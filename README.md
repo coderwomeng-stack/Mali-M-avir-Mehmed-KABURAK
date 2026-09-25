@@ -1,1 +1,0 @@
-# Mali-M-avir-Mehmed-KABURAK
